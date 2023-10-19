@@ -9,7 +9,7 @@
 
 - 📝 I regularly write articles on [https://www.ti.com/](https://www.ti.com/)
 
-- 💬 Ask me about **I am a third year student pursuing Electronic and Telecommunication Engineering Dnyanshree Institute of Engineering and Technology. I am always ready to have new experiences, meet new people and learn new things. find the idea of ​​creating value for people and impacting the world through my work gratifying**
+- 💬 Ask me about **I am a Btech student pursuing Electronic and Telecommunication Engineering Dnyanshree Institute of Engineering and Technology. I am always ready to have new experiences, meet new people and learn new things. find the idea of ​​creating value for people and impacting the world through my work gratifying**
 
 - 📫 How to reach me **technologyak007@gmail.com**
 
